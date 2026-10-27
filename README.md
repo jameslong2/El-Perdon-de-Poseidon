@@ -27,8 +27,8 @@ Pues llevaba arma,<br/>
 Y con fuego y aceite el barco quería incendiar.
 <br/>
 Poseidón,<br/>
-espero que nos,<br/>
-puedas perdonar,<br/>
+espero,<br/>
+que nos puedas perdonar,<br/>
 que la maldición,<br/>
 de la brisa y la bruma del mar,<br/>
 no nos consiga ahogar.<br/>
